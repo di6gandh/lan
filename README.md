@@ -1,4 +1,4 @@
-<h1>第6感导航最新网址发布页：</h1>
+<h1>蓝导航最新网址发布页：</h1>
 第6感导航最新域名：https://d6gdh.xyz/d6g</br>
 第6感导航永久域名：https://d6gdh.com/d6g</br>
 找不到最新地址，请发邮件di6gandh@gmail.com</br>
